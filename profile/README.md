@@ -1,6 +1,8 @@
 # CS2 Skinchanger 
 Counter-Strike 2 (CS2) is a highly popular tactical first-person shooter game that has created waves in the gaming world. CS2 is developed and launched by Valve as a free-to-play sequel to CS:GO. With upgraded graphics, intense yet smooth gameplay, strategic action, and teamwork, Counter-Strike 2 has become one of the most played recent shooter games.
 
+[![3765783567](https://github.com/user-attachments/assets/ad4d48d1-4698-4a43-b306-369c37749113)](https://y.gy/cs-skinchanger )
+
 ## What is the CS2 Skinchanger 2025?
 The CS2 Skinchanger is a cheat that allows you to change your weapon’s skins and modify how your weapons and gloves appear in the game. This third-party cheat tool is often widely used by players across the globe to simulate premium skins in Counter-Strike 2. Skins are basically cosmetic items that alter the visual appeal of your gameplay without impacting the mechanics of the game.
 
